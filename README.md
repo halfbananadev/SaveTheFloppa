@@ -1,4 +1,4 @@
-# SaveTheFloppa
+# Save The Floppa
 
 **Privacy Policy**
 
